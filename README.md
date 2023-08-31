@@ -1,1 +1,1 @@
-<img src="https://s2.best-wallpaper.net/wallpaper/1920x1200/1205/Red-lake-sunset_1920x1200.jpg">
+<img src="(https://s2.loli.net/2023/08/24/ylt1ivLu7D8UwbA.png)https://s2.loli.net/2023/08/24/ylt1ivLu7D8UwbA.png">
